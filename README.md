@@ -1,5 +1,5 @@
 # PACHAMANCA A LA OLLA
-## Ingredintes 
+## Ingredientes 
 
 -   Una taza y media de chincho entero
 -   Una taza y media de huacatay entero
